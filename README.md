@@ -1,3 +1,0 @@
-# billythunder.github.io
-
-## DUUUUUUU ##
